@@ -1,1 +1,5 @@
-# elegant-themes-best-wordpress-theme-club
+As far as i can remember elegant themes is the very first premium theme club if I'm not wrong. The very trend of wordpress theme club theory started by them. Now following them hundreds of theme clubs started and got popularity like them. Mythemeshop, studiopress, themify, tesla themes are few of there names. This theme company was founded by Nick Roac a well known name in wordpress fraternity. 
+
+From the very beginning elegant themes follow few things strictly such as themes quality, pricing and support. Currently they have around 87 amazing themes you can get access to all these themes for $69. That means you're about to pay few cents for each. How cool is that right? The thing makes elegant themes different from others of their innovative themes and plugins. Though initially they used to developed themes only buy now they create plugins for wordpress as well.
+
+Meanwhile elegant themes have created same amazing plugins for wordpress some of them i personally use. All the stuff is included into there membership plan. Use <a href="http://www.wpgra.com/elegant-themes-coupon-code/">elegant themes coupon code</a> if you wanna be a proud member or there community. Currently 200k proud member using elegant themes for there sites.
